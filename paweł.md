@@ -4,4 +4,4 @@ Lubię podróżować po świecie
 i słuchać muzyki 
 
 # Hobby
-jeżdzenie autem
+jeżdżenie autem
