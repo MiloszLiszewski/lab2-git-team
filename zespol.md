@@ -1,4 +1,4 @@
-# Zespol
+# Kampania
 Nazwa zespołu: Tupolew
 ## Skład
 Miłosz
