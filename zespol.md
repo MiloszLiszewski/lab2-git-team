@@ -1,5 +1,5 @@
 # Zespół
-Nazwa zespołu: ???
+Nazwa zespołu: 12345
 ## Skład
 Miłosz
 ## Motto
