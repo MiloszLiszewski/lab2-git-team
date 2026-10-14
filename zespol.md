@@ -1,5 +1,5 @@
 # Zespół
-Nazwa zespołu: ???
+Nazwa zespołu: Tupolew
 ## Skład
 Miłosz
 ## Motto
