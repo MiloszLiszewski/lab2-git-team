@@ -1,4 +1,4 @@
-# Zespół
+# Zespol
 Nazwa zespołu: Tupolew
 ## Skład
 Miłosz
