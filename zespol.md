@@ -1,5 +1,5 @@
 # Zespół
-Nazwa zespołu: Tupolew
+Nazwa zespołu: Wadowice
 ## Skład
 Miłosz
 ## Motto
