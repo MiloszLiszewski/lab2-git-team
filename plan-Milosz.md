@@ -1,3 +1,4 @@
 1. czego chcę się nauczyć na tym przedmiocie
 2. Czego chcę się nauczyc na tym przedmiocie
-3. dni wolne
+3. dni wolneUwaga od Pawła: Pamiętaj że JD
+Uwaga od Pawła: Pamiętaj że JD
