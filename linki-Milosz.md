@@ -1,0 +1,1 @@
+https://pl.wikipedia.org/wiki/Alternatywa_roz%C5%82%C4%85czna
