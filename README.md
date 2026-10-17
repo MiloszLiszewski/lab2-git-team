@@ -1,2 +1,2 @@
 # lab2-git-team
-Opis repozytorium
+Opis repozytorium12 X 2026
