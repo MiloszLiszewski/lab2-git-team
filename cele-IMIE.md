@@ -1,0 +1,1 @@
+Osiągnąć średnią większą niż 4.0
