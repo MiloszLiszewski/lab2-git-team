@@ -1,0 +1,1 @@
+Trzeba zdać wszystkie przedmioty
